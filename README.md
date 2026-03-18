@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=2137FFE3&width=435&lines=%EF%BC%A9+%EF%BC%AC%EF%BC%AF%EF%BC%B6%EF%BC%A5+%EF%BC%AD%EF%BC%B9+%EF%BC%B7%EF%BC%A9%CC%87%EF%BC%A6%EF%BC%A5)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=2137FFE3&width=435&lines=%EF%BC%A9+%EF%BC%AC%EF%BC%AF%EF%BC%B6%EF%BC%A5+%EF%BC%AD%EF%BC%B9+%EF%BC%B7%EF%BC%A9%CC%87%EF%BC%A6%EF%BC%A5)](https://git.io/typing-svg)![Image](https://github.com/user-attachments/assets/f6e22340-5260-4076-8213-05d951fd793f)
 
 
 — Furina~ 💦
