@@ -3,6 +3,7 @@
 
 — Furina~ 💦  
 
+
 ✮ 💫
 
 ***〃![Image](https://github.com/user-attachments/assets/f93423d6-2293-4603-8e44-559d756b47dd)〃***
@@ -11,7 +12,7 @@
 〃✦***I LOVE MY LADY*** ✦〃
 
 
-
+![Image](https://github.com/user-attachments/assets/9b2cdcbf-2bd8-4c26-a83d-84900bf0333c)
 
 ![Image](https://github.com/user-attachments/assets/8e34562d-4121-48be-a4db-9e3c82be02d2)
 
