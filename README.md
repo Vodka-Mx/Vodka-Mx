@@ -60,7 +60,7 @@ ___ ![Image](https://github.com/user-attachments/assets/e02e12c0-18d9-48f4-aded-
 
 
 - NEW HEADLINE -
-- 
+- ![Image](https://github.com/user-attachments/assets/49b9cc42-2c12-4245-9fc9-5260acc664d7)
 
 - # My-Lady-
 
