@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=2137FFE3&width=435&lines=%EF%BC%A9+%EF%BC%AC%EF%BC%AF%EF%BC%B6%EF%BC%A5+%EF%BC%AD%EF%BC%B9+%EF%BC%B7%EF%BC%A9%CC%87%EF%BC%A6%EF%BC%A5)](https://git.io/typing-svg)![Image](https://github.com/user-attachments/assets/f6e22340-5260-4076-8213-05d951fd793f)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=2137FFE3&width=435&lines=%EF%BC%A9+%EF%BC%AC%EF%BC%AF%EF%BC%B6%EF%BC%A5+%EF%BC%AD%EF%BC%B9+%EF%BC%B7%EF%BC%A9%CC%87%EF%BC%A6%EF%BC%A5)](https://git.io/typing-svg)![Image](https://github.com/user-attachments/assets/f6e22340-5260-4076-8213-05d951fd793f) ![Image](https://github.com/user-attachments/assets/79b5430f-654c-4c47-aec1-e815f1976d57)
 
 
 — Furina~ 💦  
@@ -78,6 +78,7 @@ ___ ![Image](https://github.com/user-attachments/assets/e02e12c0-18d9-48f4-aded-
  💫💤
 
  - # NEW HOAR
+ - ![Image](https://github.com/user-attachments/assets/ab54a710-c61e-4f21-bee8-06b2f71515d1)
 
 
 
