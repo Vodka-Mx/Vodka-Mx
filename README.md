@@ -70,7 +70,11 @@ ___ ![Image](https://github.com/user-attachments/assets/e02e12c0-18d9-48f4-aded-
 
  ✦ I Love My Ladyyy~
 
-[TO BE ADDED LATER]
+
+
+
+![Image](https://github.com/user-attachments/assets/1ac27d21-bdb3-41a4-a8d3-39a759ce6b3a)
+
 
  [✮ 𖤍 ✮]
 
@@ -86,3 +90,6 @@ ___ ![Image](https://github.com/user-attachments/assets/e02e12c0-18d9-48f4-aded-
 ![Image](https://github.com/user-attachments/assets/43e9e7da-d89e-4148-b16a-aa3d49c95af9)
 
 ***𝚂𝚄𝙽𝙳𝙰𝚈***
+
+
+- # [TO BE ADDED LATER]
